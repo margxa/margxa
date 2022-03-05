@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @margxa. You can call me Magar.
+- 👀 I’m interested in books and music.
+- 🌱 I’m currently learning how to make better websites
